@@ -51,8 +51,7 @@ Projeto simulado de Produto: identificação do problema de excesso de anúncios
 ## 📬 Contato
 
 📧 **nicollycgc@gmail.com**  
-🔗 [LinkedIn](https://www.linkedin.com/in/nicollycosta)  
-
+🔗 [LinkedIn](https://www.linkedin.com/in/nicolly-costa/)
 
 ---
 
